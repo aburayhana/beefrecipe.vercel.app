@@ -1,0 +1,87 @@
+---
+description: "Recipe of Ultimate Carbonara Spaghetti Day"
+title: "Recipe of Ultimate Carbonara Spaghetti Day"
+slug: 13-recipe-of-ultimate-carbonara-spaghetti-day
+date: 2020-12-31T21:37:18.887Z
+image: https://img-global.cpcdn.com/recipes/3fcb852085717c9d/751x532cq70/carbonara-spaghetti-day-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/3fcb852085717c9d/751x532cq70/carbonara-spaghetti-day-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/3fcb852085717c9d/751x532cq70/carbonara-spaghetti-day-recipe-main-photo.jpg
+author: Pauline Frazier
+ratingvalue: 4.7
+reviewcount: 34174
+recipeingredient:
+- " Spaghetti"
+- "1 egg"
+- "1 tbs parmesan cheese"
+- "2 tbs olive oil"
+- "3 pcs champignons"
+- "100 gr prawns"
+- "3 cloves garlic"
+- " any herbs"
+recipeinstructions:
+- "Cook the pasta."
+- "While waiting for the pasta, cook the sauce."
+- "Heat garlic &amp; olive oil in a pan. Wait until goldening. Then put herbs, for a while. Then put the prawns."
+- "Break an egg into a bowl. Mix with parmesan cheese for about 5 minutes."
+- "Put the pasta to the pan (also pour 1 cup of pasta water). Turn off the heat. Put the egg sauce &amp; dried oregano. Stir it for a while."
+- "Ready to serve."
+categories:
+- Recipe
+tags:
+- carbonara
+- spaghetti
+- day
+
+katakunci: carbonara spaghetti day 
+nutrition: 248 calories
+recipecuisine: American
+preptime: "PT27M"
+cooktime: "PT58M"
+recipeyield: "4"
+recipecategory: Dinner
+
+---
+
+
+![Carbonara Spaghetti Day](https://img-global.cpcdn.com/recipes/3fcb852085717c9d/751x532cq70/carbonara-spaghetti-day-recipe-main-photo.jpg)
+
+Hello everybody, I hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, carbonara spaghetti day. It is one of my favorites food recipes. For mine, I am going to make it a bit unique. This is gonna smell and look delicious.
+
+Carbonara Spaghetti Day is one of the most favored of current trending foods in the world. It is enjoyed by millions every day. It's easy, it is fast, it tastes delicious. Carbonara Spaghetti Day is something which I've loved my entire life. They're nice and they look fantastic.
+
+
+
+
+To begin with this recipe, we must first prepare a few components. You can have carbonara spaghetti day using 8 ingredients and 6 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Carbonara Spaghetti Day:
+
+1. Get  Spaghetti
+1. Make ready 1 egg
+1. Make ready 1 tbs parmesan cheese
+1. Make ready 2 tbs olive oil
+1. Take 3 pcs champignons
+1. Prepare 100 gr prawns
+1. Get 3 cloves garlic
+1. Take  any herbs
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Carbonara Spaghetti Day:
+
+1. Cook the pasta.
+1. While waiting for the pasta, cook the sauce.
+1. Heat garlic &amp; olive oil in a pan. Wait until goldening. Then put herbs, for a while. Then put the prawns.
+1. Break an egg into a bowl. Mix with parmesan cheese for about 5 minutes.
+1. Put the pasta to the pan (also pour 1 cup of pasta water). Turn off the heat. Put the egg sauce &amp; dried oregano. Stir it for a while.
+1. Ready to serve.
+
+
+
+
+So that is going to wrap it up with this special food carbonara spaghetti day recipe. Thank you very much for reading. I'm confident that you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
